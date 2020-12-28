@@ -4,4 +4,4 @@
 > Dont Recode my code and my name
 
 # Information
-> Add iFanpS#7650 if got problem
+> Add iFanpS#1827 if got problem
